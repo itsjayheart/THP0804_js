@@ -2,4 +2,4 @@
 
 Exercice 1 to 6 from today's project.
 
-Boris Alfoldi, Pas'Tech team.
+Marion 'j' Pocquet, Pas'Tech Crew 🍉
